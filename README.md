@@ -1,1 +1,2 @@
-# Carest-a-y-cooperativismo
+# Carestía-y-cooperativismo
+Se ha dado noticia de haber sido favorablemente informado por la comisión de Hacienda de la Cámara de Representantes, el proyecto del ministro del Interior, doctor Gabriel Terra, sobre constitución de un organismo autónomo con el nombre de Instituto Cooperativo de la República. En estos tiempos, son muy pocos los que ignoran cuáles son los principios fundamentales en que se sustenta la fundación de los organismos de este género, así como los fines indiscutiblemente benéficos a que responden. De modo que resultaría innecesario entrar a demostrar aquí las excelencias de este sistema tan ejercitado en otros países con positivos beneficios para la población.
